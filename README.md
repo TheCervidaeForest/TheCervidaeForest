@@ -1,3 +1,4 @@
+
 <div align="center">
 
  [Pluralkit!](https://pluralkit.xyz/s/xusbhs)
@@ -36,6 +37,9 @@ HOST/SAMUEL
 
 <img width="152" height="180" alt="pony-town-! , sys-sit-4x" src="https://github.com/user-attachments/assets/6a921c25-5675-4b8c-888d-1f8d4af541c8" />
 
+Jim / James Gordon
+
+  <img width="112" height="216" alt="pony-town-James 📖 - sys-dance-4-toy333-4x" src="https://github.com/user-attachments/assets/ce95e471-4080-4c0b-a30f-5e98d0dce728" />
 
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
   
