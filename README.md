@@ -41,6 +41,12 @@ Jim / James Gordon
 
   <img width="112" height="216" alt="pony-town-James 📖 - sys-dance-4-toy333-4x" src="https://github.com/user-attachments/assets/ce95e471-4080-4c0b-a30f-5e98d0dce728" />
 
+
+Hachiware
+
+  <img width="164" height="184" alt="pony-town-Hachi , nv 🐱 - sys-dance move 1-4x" src="https://github.com/user-attachments/assets/0b0b92d0-da47-4349-8f47-a61412a9cdfc" />
+
+
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
   
   </details>
