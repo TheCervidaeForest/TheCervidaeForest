@@ -47,6 +47,13 @@ Hachiware
   <img width="164" height="184" alt="pony-town-Hachi , nv 🐱 - sys-dance move 1-4x" src="https://github.com/user-attachments/assets/0b0b92d0-da47-4349-8f47-a61412a9cdfc" />
 
 
+
+
+
+Slasher. made by Samuel.
+
+<img width="132" height="180" alt="pony-town-😐 - sys-stand-4x" src="https://github.com/user-attachments/assets/b4a53a26-11fa-48a1-8893-a75589ba3b46" />
+
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
   
   </details>
