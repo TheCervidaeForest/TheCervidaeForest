@@ -58,7 +58,8 @@ Slasher. made by Samuel.
 
 PETER
 
-<img width="164" height="200" alt="pony-town-Peter 🕷 , sys-dance-3-4x" src="https://github.com/user-attachments/assets/620c6d27-6bc3-4b4c-a019-57f2b27c80a5" />
+<img width="160" height="200" alt="pony-town-Peter 🕷 , sys-dance-3-4x (1)" src="https://github.com/user-attachments/assets/8cb7c1ff-7297-4f7d-ad42-ff48c8bf22e0" />
+
 
 
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
