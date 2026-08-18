@@ -68,8 +68,7 @@ PETER
 
 
 
- 
-<img width="767" height="350" alt="Screenshot 2026-08-07 195915" src="https://github.com/user-attachments/assets/cf67daeb-2e89-4c1b-b0e2-73dc15da3a20" />
+ <img width="660" height="297" alt="Screenshot 2026-08-18 175331" src="https://github.com/user-attachments/assets/94a687ab-5855-4c0a-b0e4-e9fe93bcaa60" />
 
 
 
