@@ -8,6 +8,8 @@
   <details>
 
    <summary>$${\color{#F5F5F5} SYS / SKINS ▽   }$$</summary>
+IF THE SKIN ISNT ON HERE ^ THEN ITS MOST LIKELY SAMUEL
+
 
  $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
  
