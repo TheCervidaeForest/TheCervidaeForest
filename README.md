@@ -1,4 +1,5 @@
 
+
 <div align="center">
 
  [Pluralkit!](https://pluralkit.xyz/s/xusbhs)
@@ -62,7 +63,9 @@ PETER
 
 <img width="160" height="200" alt="pony-town-Peter 🕷 , sys-dance-3-4x (1)" src="https://github.com/user-attachments/assets/8cb7c1ff-7297-4f7d-ad42-ff48c8bf22e0" />
 
+PHOSGORE.
 
+<img width="176" height="192" alt="pony-town-Phos - sys-sneeze-4x" src="https://github.com/user-attachments/assets/c7968b14-631c-4d75-b6a5-b51e7e18da5a" />
 
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
   
