@@ -67,6 +67,18 @@ PHOSGORE.
 
 <img width="176" height="192" alt="pony-town-Phos - sys-sneeze-4x" src="https://github.com/user-attachments/assets/c7968b14-631c-4d75-b6a5-b51e7e18da5a" />
 
+
+Razoor
+
+<img width="184" height="168" alt="pony-town-Razoor , sys-lie-4x" src="https://github.com/user-attachments/assets/b606c845-2d6e-42ba-97c6-01260104d25f" />
+
+
+
+
+
+
+ 
+
  $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
   
   </details>
