@@ -85,6 +85,48 @@ Razoor
 
 
 
+ <details>
+
+   <summary>$${\color{#F5F5F5} FREQUENT/FRONTERS/SKINS   }$$</summary>
+
+
+
+ $\color{darkgray}{\textbf{ ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮}}$
+
+
+HOST/SAMUEL
+
+
+<img width="172" height="224" alt="pony-town-Elevator Man! 🥴, sys-dance move 5-toy372-4x" src="https://github.com/user-attachments/assets/0fb49452-186e-453e-8a9f-72df764dc20c" />
+
+
+PETER
+
+<img width="160" height="200" alt="pony-town-Peter 🕷 , sys-dance-3-4x (1)" src="https://github.com/user-attachments/assets/8cb7c1ff-7297-4f7d-ad42-ff48c8bf22e0" />
+
+PHOSGORE.
+
+<img width="176" height="192" alt="pony-town-Phos - sys-sneeze-4x" src="https://github.com/user-attachments/assets/c7968b14-631c-4d75-b6a5-b51e7e18da5a" />
+
+
+Razoor
+
+<img width="184" height="168" alt="pony-town-Razoor , sys-lie-4x" src="https://github.com/user-attachments/assets/b606c845-2d6e-42ba-97c6-01260104d25f" />
+
+
+
+
+
+
+ 
+
+ $\color{darkgray}{\textbf{ ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯}}$
+  
+  </details>
+  
+
+
+
  <img width="660" height="297" alt="Screenshot 2026-08-18 175331" src="https://github.com/user-attachments/assets/94a687ab-5855-4c0a-b0e4-e9fe93bcaa60" />
 
 
