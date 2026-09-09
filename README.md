@@ -35,6 +35,11 @@ HOST/SAMUEL
 
 <img width="172" height="224" alt="pony-town-Elevator Man! 🥴, sys-dance move 5-toy372-4x" src="https://github.com/user-attachments/assets/0fb49452-186e-453e-8a9f-72df764dc20c" />
 
+this is ALSO HOST/SAMUEL!! 
+
+<img width="204" height="280" alt="pony-town-c_h ⭐ sys-dance-5-blinking-padded-toy268-4x" src="https://github.com/user-attachments/assets/bd28cccf-b76d-4caf-9af6-6c1728396c39" />
+
+
 
 ! / Point
 
@@ -117,6 +122,9 @@ PETER
 <img width="160" height="200" alt="pony-town-Peter 🕷 , sys-dance-3-4x (1)" src="https://github.com/user-attachments/assets/8cb7c1ff-7297-4f7d-ad42-ff48c8bf22e0" />
 
 
+this is ALSO HOST/SAMUEL!! 
+
+<img width="204" height="280" alt="pony-town-c_h ⭐ sys-dance-5-blinking-padded-toy268-4x" src="https://github.com/user-attachments/assets/bd28cccf-b76d-4caf-9af6-6c1728396c39" />
 
 
 
