@@ -32,12 +32,10 @@ HOST/SAMUEL
 
 
 
+<img width="204" height="264" alt="pony-town-sona 😇, sys-dance move 5-blinking-padded-4x" src="https://github.com/user-attachments/assets/1d402e2d-5498-450a-9e0d-36aa2d512555" />
 
-<img width="172" height="224" alt="pony-town-Elevator Man! 🥴, sys-dance move 5-toy372-4x" src="https://github.com/user-attachments/assets/0fb49452-186e-453e-8a9f-72df764dc20c" />
 
-this is ALSO HOST/SAMUEL!! 
 
-<img width="204" height="280" alt="pony-town-c_h ⭐ sys-dance-5-blinking-padded-toy268-4x" src="https://github.com/user-attachments/assets/bd28cccf-b76d-4caf-9af6-6c1728396c39" />
 
 
 
@@ -114,13 +112,9 @@ Cacti / Garbo!
 HOST/SAMUEL
 
 
-<img width="172" height="224" alt="pony-town-Elevator Man! 🥴, sys-dance move 5-toy372-4x" src="https://github.com/user-attachments/assets/0fb49452-186e-453e-8a9f-72df764dc20c" />
+<img width="204" height="264" alt="pony-town-sona 😇, sys-dance move 5-blinking-padded-4x" src="https://github.com/user-attachments/assets/8f5e9ae2-941e-4b77-a1f7-9ef065c5e6a0" />
 
 
-
-this is ALSO HOST/SAMUEL!! 
-
-<img width="204" height="280" alt="pony-town-c_h ⭐ sys-dance-5-blinking-padded-toy268-4x" src="https://github.com/user-attachments/assets/bd28cccf-b76d-4caf-9af6-6c1728396c39" />
 
 
 
