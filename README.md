@@ -90,6 +90,11 @@ Cacti / Garbo!
 <img width="196" height="244" alt="pony-town-&#39;_# =- &#39;#&#39; -stand-blinking-padded-4x" src="https://github.com/user-attachments/assets/388db1f9-1eeb-44ee-98b5-f27f55d97e81" />
 
 
+Silch / Slitch -- IM NOT THE GUY ABOVE ME. ^^^^^
+
+<img width="200" height="176" alt="pony-town-evil alter _j , sys-boop-lie-blinking-padded-toy99-4x" src="https://github.com/user-attachments/assets/726d84d8-3174-4463-9181-1aa1673e9c8a" />
+
+
 
 
  
